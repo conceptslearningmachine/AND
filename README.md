@@ -3,8 +3,8 @@
 
 
 
-      Embedding algorithmic dynamics & protection to preserve and advance state.
+      algorithmic dynamic protection to preserve and advance state(s) ie. quantum information & processes.
    
-      Working with libraries & systems within Concepts Learning Machine.
+      working with libraries & systems within Concepts Learning Machine.
       
       
