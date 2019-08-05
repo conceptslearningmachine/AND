@@ -1,7 +1,7 @@
 # AND-
 
 
-
+                         ###
 
       algorithmic dynamic protection to preserve and advance state(s) ie. quantum information & processes.
    
