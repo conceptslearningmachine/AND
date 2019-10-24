@@ -1,6 +1,11 @@
 # AND-
 
 
-                                                ###
+                                                *
+                                               ***
 
-      protection & preservation of DNA and DNA signature.
+               element(s) ~ DNA ~ signature(s) ~ you know...all the fun thing(s)!
+               
+                                               ***
+                                                *
+                                              
