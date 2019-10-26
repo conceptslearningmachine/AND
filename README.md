@@ -4,7 +4,7 @@
                                                 *
                                                ***
 
-               element(s) ~ DNA ~ signature(s) ~ you know...all the fun thing(s)..
+               element(s) ~ DNA ~ signature(s) ~ & you know...equilibrium(~0~).
                
                                                ***
                                                 *
