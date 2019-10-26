@@ -1,11 +1,11 @@
 # AND-
 
 
-                                                *
-                                               ***
+                                                 *
+                                                ***
 
-               element(s) ~ DNA ~ signature(s) ~ & you know...equilibrium(~0~).
+                      element(s) ~ DNA ~ signature(s) ~ & you know...equilibrium(~0~).
                
-                                               ***
-                                                *
+                                                ***
+                                                 *
                                               
