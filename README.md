@@ -4,7 +4,7 @@
                                                  *
                                                 ***
 
-                      element(s) ~ DNA ~ signature(s) ~ & you know...equilibrium(~0~).
+                      element(s) ~ RNA ~ signature(s) ~ & you know...equilibrium(~0~).
                
                                                 ***
                                                  *
