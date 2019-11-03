@@ -4,7 +4,7 @@
                                                  *
                                                 ***
 
-                        element(s) ~ RNA ~ signature(s) ~ & ...equilibrium(~0~).
+                         the Element(s) ~ RNA ~ signature(s) ~ & ...equilibrium(~0~).
                
                                                 ***
                                                  *
